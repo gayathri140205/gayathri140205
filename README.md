@@ -22,8 +22,8 @@
 𝐌𝐲 𝐒𝐤𝐢𝐥𝐥 𝐏𝐫𝐨𝐠𝐫𝐞𝐬𝐬 𝐁𝐚𝐫
 
 
+![Blue and White Weekly House Expenses Chart Graph](https://github.com/gayathri140205/gayathri140205/assets/154896559/19bb6f21-f21b-4bab-9114-64b3412930a3)
 
-![Screenshot (749)](https://github.com/gayathri140205/gayathri140205/assets/154896559/7b73a4f7-7e28-41ba-9d92-f02bf56b4f61)
 
 
 
