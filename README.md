@@ -1,0 +1,15 @@
+👋 Hi there! I'm Gayathri, a recent graduate eager to kickstart my journey in the world of Tech Industry,
+
+   With a passion for technology and a hunger to learn, I'm excited to dive into the world of coding and contribute to innovative projects.
+
+🌱 As a fresh graduate, I bring enthusiasm, adaptability, and a willingness to tackle new challenges. 
+  
+🚀 I'm eager to grow and develop as a developer, and I'm actively seeking opportunities to collaborate, learn, and contribute,
+
+   Whether it's through internships, freelance projects, or open-source contributions.
+
+📫 Want to chat or collaborate on a project? Feel free to reach out to me via gayathri140205@gmail.com.
+
+   I'm always open to new opportunities and connections. Let's build something amazing together!
+
+![Skills Progress Bar](https://github.com/gayathri140205/gayathri140205/assets/154896559/c7992e02-3513-4822-8f2f-5c907d40f5cf)
