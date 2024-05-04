@@ -23,7 +23,11 @@
 
 
 
-![Blue and White Weekly House Expenses Chart Graph](https://github.com/gayathri140205/gayathri140205/assets/154896559/095f6e1e-456d-435c-8986-1c4ca4e88413)
+
+![Screenshot (749)](https://github.com/gayathri140205/gayathri140205/assets/154896559/df4a507c-7fd4-44f1-94a0-91a7a906f243)
+
+
+
 
 
 
