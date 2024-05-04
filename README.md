@@ -12,4 +12,6 @@
 
    I'm always open to new opportunities and connections. Let's build something amazing together!
 
+   My Skill Progress Bar
+
 ![Skills Progress Bar](https://github.com/gayathri140205/gayathri140205/assets/154896559/c7992e02-3513-4822-8f2f-5c907d40f5cf)
